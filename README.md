@@ -1,0 +1,1 @@
+# squat-bot-pictures
